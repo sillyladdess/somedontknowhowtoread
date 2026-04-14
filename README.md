@@ -1,5 +1,7 @@
-# Read this before ever following me, even if you are a spam account.
+# Read this before following me, even if you are a spam account.
 If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/) first then staring at the rest of my pages, as that will give you insight as to what my stance on things is.
+
+# For PT
 
 I don't work with roleplay, talking, c+h, hiding, etc etc. I'm a very, very antisocial person at first glance, as I hate the concept of interacting with anyone, **ESPECIALLY IF YOU RUN UP TO ME FOR NO REASON OTHER THAN TO FORCE ME TO TALK TO YOU**.
 
@@ -12,6 +14,8 @@ Do not expect me to be up for debate about my stances. These are as refined and 
 I'm not willing to share what I create with you. I'm not willing to draw or create something for you unless we're getting married ([figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively))(I'm [figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively) married to [rékaraven](https://github.com/rekaraven).)
 
 If you come up first as a troll, expect me to never care about you or your feelings. I may be an INFP, but I can turn quickly into an emotion neglecting person. There's no "enemies to lovers" when you speak of me.(unless we are hating eachother because we are [balkaners](https://en.wiktionary.org/wiki/Balkaner) but SHHHHHHHHHH)
+
+# General
 
 If you have no DNI listed, or ``"DNI: general criteria"`` I'm blocking you immediately. I don't know what's in your boundaries, and a ``"general criteria"`` doesn't mean anything if you want to put some things that are random in your DNI. I don't care if you don't want a long DNI, make it be long so it's [visible](https://dictionary.cambridge.org/dictionary/english/visible) what your boundaries are.
 
