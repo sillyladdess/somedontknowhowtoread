@@ -1,3 +1,4 @@
+![cheesestic](https://github.com/sillyladdess/somedontknowhowtoread/blob/54c1ae27591a41b1d03255a710042d1268aee76c/Screenshot_20260414-195238.png)
 ### Read this before following me, even if you are a spam account.
 If you plan on following me, I'd recommend that you look at my [DBIIYOTL](https://don-botha-trying-to-do-dat.straw.page/) first then staring at the rest of my pages, as that will give you insight as to what my stance on things is.
 
