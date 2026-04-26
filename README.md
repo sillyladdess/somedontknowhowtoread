@@ -14,7 +14,7 @@ Do not expect me to be up for debate about my stances. These are as refined and 
 
 I'm not willing to share what I create with you. I'm not willing to draw or create something for you unless we're getting married ([figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively))(I'm [figuratively](https://dictionary.cambridge.org/dictionary/english/figuratively) married to [rékaraven](https://github.com/rekaraven).)
 
-If you come up first as a troll, expect me to never care about you or your feelings. I may be an INFP, but I can turn quickly into an emotion neglecting person. There's no "enemies to lovers" when you speak of me.(unless we are hating eachother because we are [balkaners](https://en.wiktionary.org/wiki/Balkaner) but SHHHHHHHHHH)
+If you come up first as a troll, expect me to never care about you or your feelings. I may be an [INFP](https://www.16personalities.com/infp-personality), but I can turn quickly into an emotion neglecting person. There's no "enemies to lovers" when you speak of me.(unless we are hating eachother because we are [balkaners](https://en.wiktionary.org/wiki/Balkaner) but SHHHHHHHHHH)
 
 ### General
 
